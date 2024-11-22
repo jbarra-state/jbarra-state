@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @jbarra-state
+- 👀 I’m interested in Fuctional programming
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: 
